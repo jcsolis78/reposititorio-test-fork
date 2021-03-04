@@ -7,3 +7,5 @@ dtrgfdffddffdf
 
 nuevos ajustes
 jcso
+sdfkjshdjfhkjdfskjfdsahkjfdshjkfdskj
+flkasdjfkljdsafjslkjdsjfdsjadlskjf
